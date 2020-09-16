@@ -4,6 +4,8 @@ Beginnings make the conditions perfect.*
 
 Want to become independent and be your own boss? Want to maybe even finance your own education further? Then you may probably be thinking to start a business. Owning one's own business is one of the most comforting yet demanding choice. As the name suggests, you have to start a 'start-up' at any point of life. And you can’t be sure to start earning a profit right away or make it stable in just a few days. It takes patience and skills. Though, you can start a business anytime in your life but college time is the best time to do so. We’ll be seeing why so in this article.
 
+<img src="clgbussiness.jpg" width="500">
+
 ### 1. No Risk Experiments:
 In college life, you are not bound by any liabilities and do not have a burden on your shoulders. So, this is the time when you can experiment
 businesses with no or least risk. Even if you fail, you have nothing to lose.
